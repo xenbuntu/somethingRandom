@@ -6,4 +6,4 @@ The main character, **Lennox**, awakes from a dream in his house. The player is 
 
 After the tutorial, the **Lennox** then goes downstairs to go outside. However, at the door of his house, is a mysterious black figure waiting for **Lennox** to arrive.
 
-**Lennox** is then put into a "spell" and then casted into the dimension known as _**I ODNT KNOW YET**_. **Lennox's** adventure then begins, starting _Chapter 2_.
+**Lennox** is then put into a "spell" and then casted into the dimension known as _**Xio**_. **Lennox's** adventure then begins, starting _Chapter 2_.
